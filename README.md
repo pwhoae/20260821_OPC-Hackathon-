@@ -1,3 +1,5 @@
+如何驗證「真需求」？服務：小紅書內容自動化與人設拆解,營運專家設定 SOP
+
 # OPC-Hackathon-
 🎓 Uni Students & Grads – This One's for You! 🔥OPC Hackathon this Aug – crack a real biz problem with cutting-edge AI & pitch to the pros.
 
