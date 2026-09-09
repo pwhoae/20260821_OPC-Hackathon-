@@ -22,3 +22,5 @@ Winners get:
 
 Seats are limited – successful applicants get a confirmation email.
 Lunch provided on Training Day 🍽️
+
+https://web.deepstaff.ai/HKSTP817/issues
